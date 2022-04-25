@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MEETKUMAR-PATEL
-- 👀 I’m interested in Codiging
+- 👀 I’m interested in Coding
 - 🌱 I’m currently learning at Conestoga College 
 - 💞️ I’m looking to collaborate on A big and intrseting projectt
 - 📫 How to reach me mpatel4105@conestogac.on.ca
